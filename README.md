@@ -1,0 +1,2 @@
+# premium-fedora-block-001-fedora-blocking-felt-crown-bri
+Stop guessing your felt crown and brim curves—standardize your blocking process with a repeatable system that eliminates trial-and-error and inconsistent results.  This Notion planner turns messy, undocumented hat shaping into a clean, trackable workflow. Instead of relying on memory or scattered notes, you get a dedicated dashboard to log every bl
